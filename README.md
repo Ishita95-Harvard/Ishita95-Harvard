@@ -1,7 +1,7 @@
 
 **Email for businessenquiries:bahamniaishita@gmail.com**
 
-Feel free to explore my repositories, raise donations, contribute, or connect for collaboration.
+GoI-productautomation | PostDoc Harvard PhD IIT MDU M.Tech AI&ML GGSIPU B.Tech EEE |
 
 ***
 
