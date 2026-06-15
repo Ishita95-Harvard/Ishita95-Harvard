@@ -1,7 +1,7 @@
 
 **Email for businessenquiries:bahamniaishita@gmail.com**
 
-GoI-productautomation | PostDoc Harvard PhD IIT MDU M.Tech AI&ML GGSIPU B.Tech EEE |
+GoI-PSIR INTERNATIONAL RELATIONS | PostDoc Harvard PhD IIT MDU M.Tech AI&ML GGSIPU B.Tech EEE |
 
 ***
 
