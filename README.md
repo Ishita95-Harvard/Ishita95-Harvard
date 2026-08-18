@@ -1,7 +1,5 @@
 
-**Email for businessenquiries:bahamniaishita@gmail.com**
 
-GoI-PSIR INTERNATIONAL RELATIONS | MDU M.Tech AI&ML|
 
 ***
 
